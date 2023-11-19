@@ -3,7 +3,7 @@
 -
 - 📫 How to reach me:
  - - Official discord server: [NugzZ Development](https://discord.gg/33tGaHK2Fb)
- - - My discord: [Me](discordapp.com/users/439873789354967050)
+ - - My discord: [Me](https://discordapp.com/users/439873789354967050)
 
 
 <!---
