@@ -1,5 +1,5 @@
 - Hi, I’m @NugzZ3D
-- Daily im a stuendt , and in my freetime i prefer to make interiors for FiveM.
+- Daily im a student , and in my free time i prefer to make interiors for FiveM.
 -
 - 📫 How to reach me:
  - - Official discord server: [NugzZ Development](https://discord.gg/33tGaHK2Fb)
